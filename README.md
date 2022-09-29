@@ -6,3 +6,5 @@ In a country far far away, where the trees touched the sky, where the cloud was 
 #The bird who started to fly
 
 One day, in the morning, he saw a pretty bird flying with its beautiful flies... It was so beautiful that Patrick from a far far away country was so hyped by it that it wanted to follow the female bird. It jumped of its roof and started flying. But a car came and... paf. Paf the bird.
+
+Suddenly, when the bird felt his body join the afterlife, he saw his bird family, his bird friends... When he realized that he was flying in a dream, he woke up with a start and dropped the eggs from his nest on the ground...
