@@ -24,4 +24,4 @@ They went through the adoption procedure as wife and husbands and everything wen
 ### **Moral of the story: everything can go wrong in your life but therapy is a good thing I guess (the moral is not to adopt children please don't do this).**
 Hidden moral of the story: cuckoos are cruel. 
 
-###### I didn't made this up.[Cuckoos really steal other birds' nests and when the egg hatchs, the bird pushes the other eggs to the floor to be the only one nourrished.](https://en.wikipedia.org/wiki/Common_cuckoo)
+###### I didn't made this up. [Cuckoos really steal other birds' nests and when the egg hatchs, the bird pushes the other eggs to the floor to be the only one nourrished.](https://en.wikipedia.org/wiki/Common_cuckoo)
