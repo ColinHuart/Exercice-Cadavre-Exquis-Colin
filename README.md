@@ -1,3 +1,1 @@
 Suddenly, when the bird felt his body join the afterlife, he saw his bird family, his bird friends... When he realized that he was flying in a dream, he woke up with a start and dropped the eggs from his nest on the ground...
-
-![alt text](aaa.jpeg)
